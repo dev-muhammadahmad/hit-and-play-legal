@@ -1,6 +1,6 @@
 # Privacy Policy — Hit & Play
 
-**Effective date:** [Publication date]
+**Effective date:** 13/11/2026
 
 Hit & Play is provided by Dingy Games (“we,” “us,” or “our”). This Privacy Policy explains how information is handled when you use the app or contact us.
 
