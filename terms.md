@@ -1,7 +1,6 @@
 # Terms and Conditions — Hit & Play
 
-**Effective date:** [Publication date]
-
+**Effective date:** 13/11/2026
 These Terms govern your use of Hit & Play, provided by Dingy Games (“we,” “us,” or “our”).
 
 **Contact:** Mr.goji@gmail.com
